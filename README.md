@@ -15,5 +15,5 @@ where I can apply my knowledge and abilities with a strong sense of dedication t
 
 * <img src="https://praneeth.gnomezgrave.com/assets/img/icons/linkedin.png" height="20"/>&nbsp; [LinkedIn](https://www.linkedin.com/in/punsara-weerasinghe-716185222/)
 * <img src="https://praneeth.gnomezgrave.com/assets/img/icons/github.png" height="20"/>&nbsp; [GitHub](https://github.com/puna99)
-* <img src="https://praneeth.gnomezgrave.com/assets/img/icons/instagram.png" height="20"/>&nbsp; [Instagram](https://www.instagram.com/punsara_weerazinghe/)
-* <img src="https://praneeth.gnomezgrave.com/assets/img/icons/fb.png" height="20"/>&nbsp; [Facebook](https://www.facebook.com/punsara.weerasinghe)
+* <img src="https://praneeth.gnomezgrave.com/assets/img/icons/instagram.png" height="20"/>&nbsp; [Instagram](https://www.instagram.com/punsara_weerazinghe?igsh=bW5pczMzcmZ5Z2p2)
+* <img src="https://praneeth.gnomezgrave.com/assets/img/icons/fb.png" height="20"/>&nbsp; [Facebook](https://www.facebook.com/punsara.weerasinghe.3?mibextid=ZbWKwL)
